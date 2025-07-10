@@ -15,4 +15,4 @@
 平台的隐私保护措施十分到位，采用HTTPS加密技术，确保用户的浏览安全。平台不会泄露用户的个人信息，让每位用户可以安心享受影片内容。  
 总结来说，国产午夜精品福利久久系列影片通过高清播放、免注册、丰富的分类功能和隐私保护，成为了广大影迷的首选平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/job234543/ribentt17 )</span>
